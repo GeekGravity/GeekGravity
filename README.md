@@ -1,6 +1,6 @@
 ### Hey, I'm Mathews👋
 
-[LinkedIn](YOUR_LINKEDIN_URL) | [Email](mailto:mathewjais20@gmail.com)
+[LinkedIn](https://linkedin.com/in/mathewsjaison) | [Email](mailto:mathewjais20@gmail.com)
 
 ---
 
